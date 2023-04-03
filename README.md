@@ -7,4 +7,7 @@
 
 [LinkedIn](https://www.linkedin.com/in/yevhenii-onipko/)
 
+[Buy me a coffee :heart:](https://www.buymeacoffee.com/yevheniionipko)
+
+
 - 🔭 I’m currently working on My Kyivstar App
